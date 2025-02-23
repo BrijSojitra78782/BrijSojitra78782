@@ -6,7 +6,7 @@
 
 - 👨‍💻 All of my projects are available at [https://brijsojitra78782.github.io/resume/](https://brijsojitra78782.github.io/resume/)
 
-- 📫 How to reach me **brijsojitra78782@gmail.com**
+- 📫 How to reach me **brijsojitra53674@gmail.com**
 
 - 📄 Know about my experiences [https://brijsojitra78782.github.io/resume/](https://brijsojitra78782.github.io/resume/)
 
